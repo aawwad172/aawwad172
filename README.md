@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/aawwad172](https://github.com/aawwad172)
 
-- 💬 Ask me about **.NET**
+- 💬 Ask me about **Psycology, I am very pasionate about it :)**
 
 - 📫 How to reach me **aawwad172@gmail.com**
 
