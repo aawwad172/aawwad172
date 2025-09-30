@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **aawwad172@gmail.com**
 
-- 📄 Know about my experiences [https://gray-natalya-93.tiiny.site](https://gray-natalya-93.tiiny.site)
+- 📄 Know about my experiences [hmad-awwad-cv.tiiny.site](hmad-awwad-cv.tiiny.site)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
